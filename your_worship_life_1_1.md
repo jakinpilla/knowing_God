@@ -26,3 +26,20 @@
     - Go now to the place in Shiloh where I first made a dwelling for my Name, and see what I did to it because of the wickedness of my people Israel. (Jeremiah 7:12)
 
     - 하나님께서는 자신의 이름을 예배받고자 하시는 곳에 두시었음.
+
+3. 구약에서 영광의 구름이 어디에 나타났는가? 그리고 그것은 무엇을 의미하는가?
+    - and the glory of the LORD settled on Mount Sinai. For six days the cloud covered the mountain, and on the seventh day the LORD called to Moses from within the cloud. (Exodus 24:16)
+
+    - there alse I will meet with the Israelites, and the place will be consecrated by my glory. (Exodus 29:43)
+
+    - And the Lord said, “I will cause all my goodness to pass in front of you, and I will proclaim my name, the Lord, in your presence. I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion. But,” he said, “you cannot see my face, for no one may see me and live.” Then the Lord said, “There is a place near me where you may stand on a rock. 22 When my glory passes by, I will put you in a cleft in the rock and cover you with my hand until I have passed by. Then I will remove my hand and you will see my back; but my face must not be seen.”  (Exodus 33:19-23)
+
+    - Then the cloud covered the tent of meeting, and the glory of the Lord filled the tabernacle. Moses could not enter the tent of meeting because the cloud had settled on it, and the glory of the Lord filled the tabernacle. In all the travels of the Israelites, whenever the cloud lifted from above the tabernacle, they would set out; but if the cloud did not lift, they did not set out—until the day it lifted. So the cloud of the Lord was over the tabernacle by day, and fire was in the cloud by night, in the sight of all the Israelites during all their travels.  (Exodus 40:34-38)
+
+    - The trumpeters and musicians joined in unison to give praise and thanks to the Lord. Accompanied by trumpets, cymbals and other instruments, the singers raised their voices in praise to the Lord and sang: “He is good; his love endures forever.” Then the temple of the Lord was filled with the cloud, and the priests could not perform their service because of the cloud, for the glory of the Lord filled the temple of God.
+
+    - When all the Israelites saw the fire coming down and the glory of the Lord above the temple, they knelt on the pavement with their faces to the ground, and they worshiped and gave thanks to the Lord, saying, “He is good; his love endures forever.”
+
+    - 하나님께서 거처하시는 곳에서 나타남. 구름은 하나님의 영광을 의미함.
+
+
