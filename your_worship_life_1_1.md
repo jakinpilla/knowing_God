@@ -42,4 +42,110 @@
 
     - 하나님께서 거처하시는 곳에서 나타남. 구름은 하나님의 영광을 의미함.
 
+4. 신약에서는 어디에서 그 영광의 구름을 보는가?
+    - The Word became flesh and made his dwelling among us. We have seen his glory, the glory of the one and only Son, who came from the Father, full of grace and truth. (John 1:14)
+
+    - While he was speaking, a cloud appeared and covered them, and they were afraid as they entered the cloud. A voice came from the cloud, saying, “This is my Son, whom I have chosen; listen to him.” (Luke 9:34, 35)
+
+    - 신약에서는 그 구름이 예수님의 육체에서 보여짐.
+
+5. 하나님의 계시된 사역과 속성들을 아는 것이 예배와 무슨 관계가 있는가?
+
+| 속성      |      사역      |
+|----------|:-------------:|
+| 선하심, 인자하심, 성실하심 |  이스라엘을 애굽에서 구원하신 사역 |
+| 전지전능하심 | 인류를 죄악에서 구원하심 |
+
+
+
+    - Shout for joy to the Lord, all the earth.
+    Worship the Lord with gladness;
+    come before him with joyful songs.
+    Know that the Lord is God.
+    It is he who made us, and we are his;
+    we are his people, the sheep of his pasture.
+
+    Enter his gates with thanksgiving
+    and his courts with praise;
+    give thanks to him and praise his name.
+    For the Lord is good and his love endures forever;
+    his faithfulness continues through all generations. (Psalm 100)
+
+    - Then Moses and the Israelites sang this song to the Lord:
+
+    “I will sing to the Lord,
+    for he is highly exalted.
+    Both horse and driver
+    he has hurled into the sea.
+
+    “The Lord is my strength and my defense;
+    he has become my salvation.
+    He is my God, and I will praise him,
+    my father’s God, and I will exalt him.
+    The Lord is a warrior;
+    the Lord is his name.
+    Pharaoh’s chariots and his army
+    he has hurled into the sea.
+    The best of Pharaoh’s officers
+    are drowned in the Red Sea.
+    The deep waters have covered them;
+    they sank to the depths like a stone.
+    Your right hand, Lord,
+    was majestic in power.
+    Your right hand, Lord,
+    shattered the enemy.
+
+    “In the greatness of your majesty
+    you threw down those who opposed you.
+    You unleashed your burning anger;
+    it consumed them like stubble.
+    By the blast of your nostrils
+    the waters piled up.
+    The surging waters stood up like a wall;
+    the deep waters congealed in the heart of the sea.
+    The enemy boasted,
+    ‘I will pursue, I will overtake them.
+    I will divide the spoils;
+    I will gorge myself on them.
+    I will draw my sword
+    and my hand will destroy them.’
+    But you blew with your breath,
+    and the sea covered them.
+    They sank like lead
+    in the mighty waters.
+    Who among the gods
+    is like you, Lord?
+    Who is like you—
+    majestic in holiness,
+    awesome in glory,
+    working wonders?
+
+    “You stretch out your right hand,
+    and the earth swallows your enemies.
+    In your unfailing love you will lead
+    the people you have redeemed.
+    In your strength you will guide them
+    to your holy dwelling.
+    The nations will hear and tremble;
+    anguish will grip the people of Philistia.
+    The chiefs of Edom will be terrified,
+    the leaders of Moab will be seized with trembling,
+    the people of Canaan will melt away;
+
+    terror and dread will fall on them.
+    the power of your arm
+    they will be as still as a stone—
+    until your people pass by, Lord,
+    until the people you bought pass by.
+    You will bring them in and plant them
+    on the mountain of your inheritance—
+    the place, Lord, you made for your dwelling,
+    the sanctuary, Lord, your hands established.
+
+    “The Lord reigns
+    for ever and ever.” (Exodus 15:1-18)
+
+
+
+
 
