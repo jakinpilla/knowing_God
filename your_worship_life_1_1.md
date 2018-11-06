@@ -146,6 +146,49 @@
     for ever and ever.” (Exodus 15:1-18)
 
 
+    On that day Deborah and Barak son of Abinoam sang this song:
+
+    “When the princes in Israel take the lead,
+    when the people willingly offer themselves—
+    praise the Lord!
+
+    “Hear this, you kings! Listen, you rulers!
+    I, even I, will sing to the Lord;
+    I will praise the Lord, the God of Israel, in song.
+
+    “When you, Lord, went out from Seir,
+    when you marched from the land of Edom,
+    the earth shook, the heavens poured,
+    the clouds poured down water.
+    The mountains quaked before the Lord, the One of Sinai,
+    before the Lord, the God of Israel.
+
+    “In the days of Shamgar son of Anath,
+    in the days of Jael, the highways were abandoned;
+    travelers took to winding paths.
+    Villagers in Israel would not fight;
+    they held back until I, Deborah, arose,
+    until I arose, a mother in Israel.
+
+    God chose new leaders
+    when war came to the city gates,
+    but not a shield or spear was seen
+    among forty thousand in Israel.
+    My heart is with Israel’s princes,
+    with the willing volunteers among the people.
+    Praise the Lord!
+
+    “You who ride on white donkeys,
+    sitting on your saddle blankets,
+    and you who walk along the road,
+    consider 11 the voice of the singers at the watering places.
+    They recite the victories of the Lord,
+    the victories of his villagers in Israel.
+
+    “Then the people of the Lord
+    went down to the city gates.
+
+
 
 
 
