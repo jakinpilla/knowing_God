@@ -186,9 +186,20 @@
     the victories of his villagers in Israel.
 
     “Then the people of the Lord
-    went down to the city gates.
+    went down to the city gates. (Judges 5:1-11)
 
 
 
 
+품성
+    - 겸손, 남의 의견을 경청
+    - 수명의지가 강하고 주어진 임무를 끝까지 완수하련는 임무 완수의 자세 견지 
+    - 호기심이 강해 문제점에 대한 창의적 해결 방결 방법을 강구
 
+전문성
+    - 빅데이터 관련 자격증, 학위 취득
+    - 파이썬 등 프로그래밍 언어에 대한 기본적 소양
+    - 어학 능력 우수 (토익 900점대, 해외 파병 경험)
+
+향후 활용 가능성
+    - 데이터 분석, 머신러닝 및 딥러닝 등 4차 혁명 관련된 미래 역량에 대한 기본을 갖추어 미래 업무 발전에 기여 가능
