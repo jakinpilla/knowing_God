@@ -33,8 +33,14 @@
     - 이타주의- 이것이 이기주의의 질병을 치료해준다. 그런데 우리가 예수 그리스도의를 구세주로 믿는 개인적 믿음을 통해서만이 그 치료를 받기 시작할 수 있다.
 
 ### 종의 직분의 길 : 이타주의의 특성
-    - 
 
-
-
-
+## 주는 자로서의 종
+    - 우리는 다른 사람들을 우리 자신보다 더 중요하게 보아야 한다. 
+    - 우리는 우리 자신이 하나님 앞에서 가치있는 존재이며 하나님에게 전적으로 의존하고 있는 존재라고 하는 정확한 평가를 해야 한다.
+    - 종 : 주는 일, 용서하는 일, 잊어버리는 일
+    - 주는 일 : 익명으로, 관대하게, 자원하여, 몸소
+    - 아무든지 나를 따라 오려거든 자기를 부인하고 날마다 제 십자가를 지고 나를 쫓을 것이니라.
+    - 즐겨내는 자를 사랑하심, 선한 눈을 가진 자는 복을 받으리니 이는 양식을 가난한 자에게 줌이니라.
+    - Do nothing out of selfish ambition or vain conceit. Rather, in humility value others above yourselves, not looking to your own
+    interests but each of you to the intterests of the others. (Philippians 2:3-4)
+    
