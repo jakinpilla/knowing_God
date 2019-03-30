@@ -43,4 +43,16 @@
     - 즐겨내는 자를 사랑하심, 선한 눈을 가진 자는 복을 받으리니 이는 양식을 가난한 자에게 줌이니라.
     - Do nothing out of selfish ambition or vain conceit. Rather, in humility value others above yourselves, not looking to your own
     interests but each of you to the intterests of the others. (Philippians 2:3-4)
-    
+
+
+## 용서하는 자로서의 종
+    - 동이 서에서 먼 것 같이 우리 죄과를 우리에게서 옮기셨으며(시 103:12)
+    - 우리가 그 교훈에 순종하지 아니하면 결국 쓰라림과 분노와 죄책감으로 가득찬 존재가 된다.
+
+### 용서에 대한 제 1세기의 기사
+    - 책벌할 것을 권면함
+    - 용서할 것을 요청함
+    - 회개해야 함
+
+### 우리들에 대한 하나님의 용서
+    - 그리스도이 죽음이 우리의 빚을 갚기에 충분하다는 ㄱ서
